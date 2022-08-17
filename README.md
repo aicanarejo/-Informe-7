@@ -25,73 +25,64 @@ Marco Teorico
 Resolución de Ejercicios
 
 
-![](
+![](https://github.com/aicanarejo/-Informe-7/blob/main/1.png)
 
-![](
+![](https://github.com/aicanarejo/-Informe-7/blob/main/2.png)
 
-![](
+![](https://github.com/aicanarejo/-Informe-7/blob/main/3.png)
 
-![](
+![](https://github.com/aicanarejo/-Informe-7/blob/main/4.png)
 
-![](
+![](https://github.com/aicanarejo/-Informe-7/blob/main/5.png)
 
-![](
+![](https://github.com/aicanarejo/-Informe-7/blob/main/6.png)
 
-![](
+![](https://github.com/aicanarejo/-Informe-7/blob/main/7.png)
 
-![](
+![](https://github.com/aicanarejo/-Informe-7/blob/main/8.png)
 
-![](
+![](https://github.com/aicanarejo/-Informe-7/blob/main/9.png)
 
-![](
+![](https://github.com/aicanarejo/-Informe-7/blob/main/10.png)
 
-![](
+![](https://github.com/aicanarejo/-Informe-7/blob/main/11.png)
 
-![](
+![](https://github.com/aicanarejo/-Informe-7/blob/main/12.png)
 
-![](
+![](https://github.com/aicanarejo/-Informe-7/blob/main/13.png)
 
-![](
+![](https://github.com/aicanarejo/-Informe-7/blob/main/14.png)
 
-![](
+CAPITULO 14
 
-![](
+![](https://github.com/aicanarejo/-Informe-7/blob/main/15.png)
 
-![](
+![](https://github.com/aicanarejo/-Informe-7/blob/main/16.png)
 
-![](
+![](https://github.com/aicanarejo/-Informe-7/blob/main/17.png)
 
-![](
+![](https://github.com/aicanarejo/-Informe-7/blob/main/18.png)
 
-![](
+![](https://github.com/aicanarejo/-Informe-7/blob/main/19.png)
 
-![](
+![](https://github.com/aicanarejo/-Informe-7/blob/main/20.png)
 
-![](
+![](https://github.com/aicanarejo/-Informe-7/blob/main/21.png)
 
-![](
+![](https://github.com/aicanarejo/-Informe-7/blob/main/22.png)
 
-![](
+![](https://github.com/aicanarejo/-Informe-7/blob/main/23.png)
 
-![](
+![](https://github.com/aicanarejo/-Informe-7/blob/main/24.png)
 
-![](
+![](https://github.com/aicanarejo/-Informe-7/blob/main/25.png)
 
-![](
+![](https://github.com/aicanarejo/-Informe-7/blob/main/26.png)
 
-![](
+![](https://github.com/aicanarejo/-Informe-7/blob/main/27.png)
 
-![](
+![](https://github.com/aicanarejo/-Informe-7/blob/main/28.png)
 
-![](
-
-![](
-
-![](
-
-![](
-
-![](
 
 Video
 
