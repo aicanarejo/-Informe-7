@@ -100,6 +100,8 @@ CAPITULO 14
 
 Video
 
+https://youtu.be/luXOwgG0zHg 
+
 Concluciones:
 
 * Varios de los componetes como son las bobinas o inductores son de autoinducción y decampomagnética
