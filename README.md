@@ -22,6 +22,8 @@ Objetivos especificos:
 
 Marco Teorico
 
+![](https://github.com/aicanarejo/-Informe-7/blob/main/29.png)
+
 Resolución de Ejercicios
 
 
